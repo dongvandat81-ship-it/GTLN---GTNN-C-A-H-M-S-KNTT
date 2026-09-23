@@ -1,0 +1,1 @@
+# GTLN---GTNN-C-A-H-M-S-KNTT
